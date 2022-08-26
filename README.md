@@ -1,2 +1,2 @@
 # table
-Created with StackBlitz ⚡️
+# Somalia 💙
