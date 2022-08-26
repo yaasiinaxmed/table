@@ -1,2 +1,0 @@
-# info table
-# Somalia ✌🏽💙
